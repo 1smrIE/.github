@@ -2,7 +2,7 @@
 
 # Grupo de 1º de SMR - `Montaje y Mantenimiento de equipos`
 
-![](/profile/)
+![](/profile/alexandru-bogdan-ghita-iXXfSw_1J9k-unsplash.jpg)
 
 Foto de <a href="https://unsplash.com/es/@bogzilla?utm_content=creditCopyText&utm_medium=referral&utm_source=unsplash">Alexandru-Bogdan Ghita</a> en <a href="https://unsplash.com/es/fotos/sistema-de-enfriamiento-de-cpu-negro-iXXfSw_1J9k?utm_content=creditCopyText&utm_medium=referral&utm_source=unsplash">Unsplash</a>
   
